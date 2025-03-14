@@ -1,0 +1,1 @@
+# funcsiya1
